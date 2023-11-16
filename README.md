@@ -1,0 +1,2 @@
+# cookies
+Politica de Privacidade
